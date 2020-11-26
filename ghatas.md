@@ -1,6 +1,6 @@
 # THICH NHAT HANH´S GATHAS
 
-Dwelling in the present moment, We can see so many beauties and wonders right before our eyes–a child’s smile, the sun rising, the autumn leaves. We can be happy just by being aware of what is in front of us. Practicing with gathas can help us return to ourselves and to what is going on in the present moment. It is helpful to memorize these gathas, a few at first, and more as You go on with the practice. As You silently recite the first line, breathe in; and as You  silently recite the second line, breathe out. When the gathas are finished, continue your activity, and You will find that your mindfulness has increased. When We drive, road signs help us find our way. We “see” the last sign until the next one appears. Practicing with gathas is the same. When we practice well, the gathas are with us continuously, and we live our whole day in awareness.
+Dwelling in the present moment, We can see so many beauties and wonders right before our eyes–a child’s smile, the sun rising, the autumn leaves. We can be happy just by being aware of what is in front of us. Practicing with gathas can help us return to ourselves and to what is going on in the present moment. It is helpful to memorize these gathas, a few at first, and more as You go on with the practice. As You silently recite the first line, breathe in; and as You  silently recite the second line, breathe out. When the gathas are finished, continue your activity, and You will find that your mindfulness has increased. When We drive, road signs help us find our way. We “see” the last sign until the next one appears. Practicing with gathas is the same. When we practice well, the gathas are with us continuously, and we live our whole day in awareness. 
 
 ### Waking Up
 
@@ -111,7 +111,7 @@ The day is ending and our life is one day shorter. Let us loo carefully at what 
 
 Breathing in, I know that anger makes me not beautiful. Breathing out, I smile. I stay with my breathing so I won’t lose myself.
 
-### Turning on the Computer 
+### Turning on the Computer
 
 Turning on the computer, my mind gets in touch with the store. I vow to transform habit energies to help love and understanding grow.
 
